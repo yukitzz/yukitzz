@@ -23,5 +23,6 @@ Oie🐱‍💻! Meu nome é Thajla Lawane
   <a href="https://www.linkedin.com/in/thajla-lawane-88b1391a0?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3Bdyy160wBR02GoSoAThuoow%3D%3D" target="_blank"><img src="https://img.shields.io/badge/-LinkedIn-%230077B5?style=for-the-badge&logo=linkedin&logoColor=white" target="_blank"></a>
 </div>
 
-<img src="https://i.pinimg.com/originals/2d/55/0e/2d550e48e5fabf33543b51e4d8ccb335.gif">
+<img src="![Tenor-unscreen](https://github.com/user-attachments/assets/ff82768b-2e1c-4df9-ba95-6833f4462174)
+">
 
